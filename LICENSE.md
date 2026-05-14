@@ -1,4 +1,4 @@
-#  
+#  escape tsunami for brainrots advanced Scripts is the best escape tsunami for brainrots Script, featuring undetectable and anti-ban. Safe and powerful
 
 
 
